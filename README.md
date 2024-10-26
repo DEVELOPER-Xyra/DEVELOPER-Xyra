@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DEVELOPER-Xyra
+- 👀 I’m interested in OG Fortnite
+- 🌱 I’m currently learning OGFN
+- 📫 How to reach me Discord Vivid_1234
+- 😄 Pronouns: He/him
